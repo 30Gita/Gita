@@ -1,1 +1,1 @@
-qq1ada# Gita
+# Gita
