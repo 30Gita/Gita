@@ -6,7 +6,4 @@ xzxcаиваив
 fs
 dfdsfsfsf
 fbfgfgzds
-csdcscs
-dgraetthjkhj
-ngchtrdsdd
-fhfthfthfth
+csd
