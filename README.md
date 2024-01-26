@@ -6,5 +6,3 @@ xzxcаиваив
 fs
 dfdsfsfsf
 fbfgfgzds
-csd
-jgyjyfjdtyhry
