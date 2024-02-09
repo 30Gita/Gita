@@ -1,8 +1,5 @@
 qwqwawz# Gita
 bhbhbhefefg
 czxcs
-sdfsdgdgsd
-xzxcаиваив
-vdvDSEFEFa
-jhjghjujyuyu
+sd
 xc
